@@ -2,8 +2,8 @@
 - 👀 I’m interested in games, anime, teaching English and coding
 - 🌱 I’m currently learning how to be an software engineer
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: He
+- 📫 How to reach me https://www.facebook.com/5133PYM4N
+- 😄 Pronouns: He/him
 - ⚡ Fun fact: Sleepy af
 
 <!---
